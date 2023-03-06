@@ -1,3 +1,1 @@
-Ã
-
-clear
+newton helped chris
